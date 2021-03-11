@@ -1,0 +1,5 @@
+- finishing this course
+- alive 
+- got 3 pointer
+  - do assignments constantly
+  - not die
